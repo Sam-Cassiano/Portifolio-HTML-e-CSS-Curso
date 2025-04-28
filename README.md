@@ -14,6 +14,6 @@
 
 ### Joana Santos
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/samuel-cassiano-dos-santos-705303239/)
 
 ```
